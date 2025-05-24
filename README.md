@@ -1,3 +1,3 @@
-https://arefin201.github.io/
+https://arefin201.github.io/arefiin-mojumder/resume
 
-https://arefin201.github.io/resume
+https://arefin201.github.io/arefiin-mojumder
